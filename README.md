@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LamoG6
 - 👀 I’m interested in Bikes, Nature, Music, Badminton
 - 🌱 I’m currently learning Coding
-- 💞️ I’m looking to collaborate on *DM me*
+- 💞️ I’m looking to collaborate on *DM me ;)*
 - 📫 How to reach me LamoGupta@gmail.com
 
 <!---
